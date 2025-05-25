@@ -1,5 +1,5 @@
 ## Oii, sou a Beatriz 👋🌟
-:)
+:)<br/>
 🧠 Sou estudante de Sistemas De Informação no IFBA<br/>
 👩🏻‍💻 Procuro aperfeiçoamento contínuo em Desenvolvimento<br/>
 
