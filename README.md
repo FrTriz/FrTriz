@@ -1,7 +1,7 @@
-## Oii, sou a Beatriz 👋🌟
+## hii, im Beatriz 👋🌟
 :)<br/>
-🧠 Sou estudante de Sistemas De Informação no IFBA<br/>
-👩🏻‍💻 Procuro aperfeiçoamento contínuo em Desenvolvimento<br/>
+🧠 I am an Information Systems student at IFBA<br/>
+👩🏻‍💻 I seek continuous improvement in Development<br/>
 
 
 ## 🌐 Socials:
